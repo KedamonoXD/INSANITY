@@ -9,3 +9,5 @@ Carl Johnson: https://www.mixmods.com.br/2018/06/carl-johnson-remastered-insanit
 NeXtGen Remaster Weapons: https://www.mixmods.com.br/2021/05/nextgen-remaster-weapons-pack-de-armas-em-hd/
 
 NextGen Remaster Effects: https://www.mixmods.com.br/2022/04/sa-nextgen-remaster-effects/
+
+Vegetation: https://www.gtainside.com/en/sanandreas/mods/91228-insanity-vegetation/
