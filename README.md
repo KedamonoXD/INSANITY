@@ -6,6 +6,8 @@ East Los Santos: https://www.gtainside.com/en/sanandreas/mods/125947-east-los-sa
 
 Carl Johnson: https://www.mixmods.com.br/2018/06/carl-johnson-remastered-insanity-cj/
 
+Vados Peds Pack: https://www.mixmods.com.br/2020/09/vados-peds-pack/
+
 NeXtGen Remaster Weapons: https://www.mixmods.com.br/2021/05/nextgen-remaster-weapons-pack-de-armas-em-hd/
 
 NextGen Remaster Effects: https://www.mixmods.com.br/2022/04/sa-nextgen-remaster-effects/
